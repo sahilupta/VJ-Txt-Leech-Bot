@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.ibb.co/dJ0gpJf1/photo-2025-06-16-12-07-05-7516517596376596504.jpg" alt="SAHIL BOT Logo">
+  <img src="https://i.ibb.co/TB7rzqfk/5da87e7badf2.jpg" alt="SAHIL BOT Logo">
 </p>
 <h1 align="center">
   SAHIL BOT
