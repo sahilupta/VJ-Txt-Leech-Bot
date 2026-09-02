@@ -10,7 +10,7 @@
 
 <b><details><summary>Tap On Me For See Credit</summary>
 
-💝 Credit Goes To [Tech VJ](https://telegram.me/VJ_Bots) So Don't Forgot To Give Credit
+💝 Credit Goes To [SAHIL] So Don't Forgot To Give Credit
 
 💖 And Thank You So Much To All Who Help In This Journey 💕
 
